@@ -4,6 +4,7 @@ Perkenalkan nama saya Yudha Arisandhy Sintuwardhana, seorang anak muda yang bera
 Berikut merupakan email dan media sosial saya jika kalian ingin menjalin koneksi dengan saya
 
 Email : yudhasintuwardhana08@mail.ugm.ac.id
+
 LinkedIn : https://www.linkedin.com/in/yudha-arisandhy-s-82188519b
 
 See you later guys, stay safe and stay healthy !!!
